@@ -1,0 +1,1 @@
+# szenzora_hw
